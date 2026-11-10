@@ -1,0 +1,1 @@
+# 123250024_latihanresponsi_praktikum_strukturdata
